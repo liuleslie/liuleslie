@@ -1,3 +1,1 @@
-- Print/graphic/digital designer.
-- Available for work. Seeking collaborators and clients primarily in arts & culture, media & entertainment, and education.
-- [Selected Graphic Design Portfolio](https://liuleslie.github.io/), [Research](https://www.are.na/leslie-liu/hypo-thesis), [Scattered Sketches](https://www.instagram.com/orthodoxassembly/)
+- person out and about around turtle island.
